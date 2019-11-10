@@ -1,26 +1,16 @@
 # Corn Pudding
 
 ## Ingredients
-3 tablespoons unsalted butter, melted, plus more for the casserole dish
-
-4 ounces cream cheese, softened
-
-One 15-ounce can creamed corn
-
-3/4 cup frozen corn, thawed
-
-1/2 cup cornmeal
-
-1/2 onion, chopped
-
-2/3 cup milk
-
-1 large egg, beaten 
-
-1 tablespoon sugar
-
-1/2 cup shredded Cheddar
-
+3 tablespoons unsalted butter, melted, plus more for the casserole dish  
+4 ounces cream cheese, softened  
+One 15-ounce can creamed corn  
+3/4 cup frozen corn, thawed  
+1/2 cup cornmeal  
+1/2 onion, chopped  
+2/3 cup milk  
+1 large egg, beaten   
+1 tablespoon sugar  
+1/2 cup shredded Cheddar  
 Kosher salt and freshly ground black pepper
 
 ## Directions

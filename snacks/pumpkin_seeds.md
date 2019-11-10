@@ -1,56 +1,56 @@
 # Roasted Pumpkin Seeds
 
 PREP TIME
-5 minutes
+5 minutes  
 COOK TIME
-30 minutes
+30 minutes  
 TOTAL TIME
-35 minutes
+35 minutes  
 
 ## Ingredients
 
-1/2 cup clean and towel-dried pumpkin seeds
+1/2 cup clean and towel-dried pumpkin seeds  
 1 teaspoon olive oil or avocado oil
 
 ### For the Ranch Roasted Pumpkin Seeds
-1/2 teaspoon sea salt
-1/4 teaspoon onion powder
-1/4 teaspoon parsley
-1/4 teaspoon garlic powder
-1/4 teaspoon dill
-1/8 teaspoon dry mustard
-1/8 teaspoon celery seed
-1/8 teaspoon paprika
-1/8 teaspoon black pepper
+1/2 teaspoon sea salt  
+1/4 teaspoon onion powder  
+1/4 teaspoon parsley  
+1/4 teaspoon garlic powder  
+1/4 teaspoon dill  
+1/8 teaspoon dry mustard  
+1/8 teaspoon celery seed  
+1/8 teaspoon paprika  
+1/8 teaspoon black pepper  
 
 ### For the Pizza Roasted Pumpkin Seeds
-1 tablespoon grated Parmesan cheese or nutritional yeast
-1/2 teaspoon basil
-1/2 teaspoon oregano
-1/4 teaspoon sea salt
-1/8 teaspoon garlic powder
+1 tablespoon grated Parmesan cheese or nutritional yeast  
+1/2 teaspoon basil  
+1/2 teaspoon oregano  
+1/4 teaspoon sea salt  
+1/8 teaspoon garlic powder  
 
 ### For the Dill Pickle Roasted Pumpkin Seeds
-1 teaspoon white vinegar
-1 teaspoon dill
-1/2 teaspoon garlic powder
-1/2 teaspoon sea salt
-1/8 teaspoon black pepper
+1 teaspoon white vinegar  
+1 teaspoon dill  
+1/2 teaspoon garlic powder  
+1/2 teaspoon sea salt  
+1/8 teaspoon black pepper  
 
 ### For the Salt and Pepper Roasted Pumpkin Seeds
-1/2 teaspoon sea salt
-1/8–1/2 teaspoon black pepper
+1/2 teaspoon sea salt  
+1/8–1/2 teaspoon black pepper  
 
 ### For the Cinnamon Sugar Roasted Pumpkin Seeds
-1 tablespoon brown sugar
-1/2 teaspoon cinnamon
-Pinch of salt
+1 tablespoon brown sugar  
+1/2 teaspoon cinnamon  
+Pinch of salt  
 
 ### For the Sweet and Spicy Roasted Pumpkin Seeds
-1 tablespoon brown sugar
-1/2 teaspoon sea salt
-1/8 teaspoon cayenne pepper
-1/8 teaspoon black pepper
+1 tablespoon brown sugar  
+1/2 teaspoon sea salt  
+1/8 teaspoon cayenne pepper  
+1/8 teaspoon black pepper  
 
 ## Instructions
 1. Preheat oven to 300°F. Line a baking sheet with parchment paper, and set aside.

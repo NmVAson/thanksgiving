@@ -1,32 +1,32 @@
 # BUTTERNUT SQUASH HUMMUS
 
 PREP TIME
-10 minutes
+10 minutes  
 COOK TIME
-20 minutes
+20 minutes  
 TOTAL TIME
-30 minutes
+30 minutes  
 Does it keep? 4-5 Days
 
 ## Ingredients
 
 ### HUMMUS
-1 cup cubed butternut squash
-4 cloves garlic (skin on)
-4 cloves garlic (peeled + minced)
-2 Tbsp lemon juice
-1 15-ounce can chickpeas (lightly rinsed + drained)
-1/3 cup tahini
-3-4 Tbsp olive oil (plus more for roasting garlic)
-1/4 tsp each sea salt + pepper (to taste)
-1/2 cup fresh parsley (chopped)
-1/4 tsp ground cinnamon
-1/2 tsp ground cumin
-1/4 tsp smoked paprika (optional: )
+1 cup cubed butternut squash  
+4 cloves garlic (skin on)  
+4 cloves garlic (peeled + minced)  
+2 Tbsp lemon juice  
+1 15-ounce can chickpeas (lightly rinsed + drained)  
+1/3 cup tahini  
+3-4 Tbsp olive oil (plus more for roasting garlic)  
+1/4 tsp each sea salt + pepper (to taste)  
+1/2 cup fresh parsley (chopped)  
+1/4 tsp ground cinnamon  
+1/2 tsp ground cumin  
+1/4 tsp smoked paprika (optional: )  
 
 ### FOR SERVING optional
-Whole-wheat pita chips
-Roasted carrots*
+Whole-wheat pita chips  
+Roasted carrots*  
 
 ## Instructions
 1. Preheat oven to 400 degrees F (204 C) and position a rack in the middle of the oven.

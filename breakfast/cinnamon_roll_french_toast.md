@@ -1,8 +1,8 @@
 # Cinnamon Roll French Toast Casserole
-Prep Time 10 minutes
-Cook Time 35 minutes
-Total Time 45 minutes
-Servings 8
+Prep Time 10 minutes  
+Cook Time 35 minutes  
+Total Time 45 minutes  
+Servings 8  
 
 ## Ingredients
 

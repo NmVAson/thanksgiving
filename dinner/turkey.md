@@ -1,23 +1,23 @@
 # Classic Brined and Roasted Turkey
 
 ## Ingredients
-3 cups kosher salt, plus more for seasoning
-5 cups sugar
-2 medium onions, coarsely chopped
-2 medium leeks, white and pale-green parts only, rinsed and coarsely chopped
-2 carrots, peeled and coarsely chopped
-2 celery stalks, coarsely chopped
-2 dried bay leaves
-3 sprigs fresh thyme
-3 sprigs fresh flat-leaf parsley
-2 teaspoons whole black peppercorns
-Freshly ground pepper
-1 whole turkey (18 to 20 pounds), rinsed and patted dry, giblets and neck reserved for gravy
-Gravy
-1 stick (1/2 cup) unsalted butter, melted, plus 1/2 stick (1/4 cup) unsalted butter, room temperature
-1/2 cup dry white wine, such as Sauvignon Blanc
-Chestnut Stuffing
-Crab apples, fresh rosemary sprigs, and fresh sage, for garnish (optional)
+3 cups kosher salt, plus more for seasoning  
+5 cups sugar  
+2 medium onions, coarsely chopped  
+2 medium leeks, white and pale-green parts only, rinsed and coarsely chopped  
+2 carrots, peeled and coarsely chopped  
+2 celery stalks, coarsely chopped  
+2 dried bay leaves  
+3 sprigs fresh thyme  
+3 sprigs fresh flat-leaf parsley  
+2 teaspoons whole black peppercorns  
+Freshly ground pepper  
+1 whole turkey (18 to 20 pounds), rinsed and patted dry, giblets and neck reserved for gravy  
+Gravy  
+1 stick (1/2 cup) unsalted butter, melted, plus 1/2 stick (1/4 cup) unsalted butter, room temperature  
+1/2 cup dry white wine, such as Sauvignon Blanc  
+Chestnut Stuffing  
+Crab apples, fresh rosemary sprigs, and fresh sage, for garnish (optional)  
 
 ## Directions
 1. Put salt, sugar, onions, leeks, carrots, celery, bay leaves, thyme, parsley, peppercorns, and 10 cups water in a large stockpot. Bring to a boil, stirring until salt and sugar have dissolved. Remove from heat; let brine cool completely.

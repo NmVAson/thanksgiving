@@ -1,24 +1,21 @@
 # Pumpkin Biscotti
-PREP
-15 mins
-BAKE
-55 mins to 1 hr 5 mins
-TOTAL
-1 hr 20 mins
+PREP 15 mins  
+BAKE 55 mins to 1 hr 5 mins  
+TOTAL 1 hr 20 mins
 
 30 to 40 biscotti, depending on size
 
 ## Ingredients
-4 tablespoons (57g) softened butter, salted or unsalted
-2/3 cup (131g) granulated sugar
-1 1/4 teaspoons pumpkin pie spice, or 3/4 teaspoon ground cinnamon plus 1/4 teaspoon each ground nutmeg and ground ginger
-3/4 teaspoon ground cinnamon
-1 1/2 teaspoons baking powder
-1/2 teaspoon salt (see "tips," below)
-1 large egg
-1/2 cup (113g) pumpkin purée
-2 cups (241g) King Arthur Unbleached All-Purpose Flour
-coarse white sparkling sugar and/or cinnamon-sugar for topping, optional
+4 tablespoons (57g) softened butter, salted or unsalted  
+2/3 cup (131g) granulated sugar  
+1 1/4 teaspoons pumpkin pie spice, or 3/4 teaspoon ground cinnamon plus 1/4 teaspoon each ground nutmeg and ground ginger  
+3/4 teaspoon ground cinnamon  
+1 1/2 teaspoons baking powder  
+1/2 teaspoon salt (see "tips," below)  
+1 large egg  
+1/2 cup (113g) pumpkin purée  
+2 cups (241g) King Arthur Unbleached All-Purpose Flour  
+coarse white sparkling sugar and/or cinnamon-sugar for topping, optional  
 
 ## Instructions
 1. Preheat the oven to 350°F. Lightly grease (or line with parchment) one large (about 18" x 13") baking sheet.
