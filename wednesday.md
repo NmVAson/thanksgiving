@@ -1,5 +1,9 @@
-# Brunch 
-Bubs cafe
+# Breakfast
+??
+
+# Snacks 
+* [Candied pecans](./snacks/candied_pecans.md)
+* [Pumpkin seeds](./snacks/pumpkin_seeds.md)
 
 # Dinner 
-Pizza
+[Christkindlemarkt](https://www.carmelchristkindlmarkt.com/)

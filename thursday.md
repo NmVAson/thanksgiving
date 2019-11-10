@@ -4,20 +4,21 @@
 * [pumpkin biscotti](./breakfast/pumpkin_biscotti.md)
 
 # Lunch 
-* olive oil (or poached tomatoes pg 255)
+* Olive oil + bread
 * Meatballs
 * Lasagne
 
 # Dinner 
 * Charchutery 
-
-* Turkey tail rolls 
-* Spoon Stuffing
-* Turkey
+* [Turkey tail rolls](./dinner/rolls.md)
+* Stuffing
+* [Turkey](./dinner/turkey.md)
 * Brown gravy 
 * Mashed potatoes
-* Corn
-* Green beans 
-* Stuffing 
-* Deviled Eggs
-* Baked acorn squash (pg 130)
+* [Corn pudding](./dinner/corn_pudding.md)
+* Green beans (Nanna)
+* Deviled Eggs (Nanna)
+
+# Drinks
+* [Apple Pie Moonshine](./drinks/apple_pie_moonshine.md)
+* [Cognac Sparklers](./drinks/cognac_sparklers.md)
