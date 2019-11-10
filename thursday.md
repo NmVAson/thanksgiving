@@ -14,6 +14,7 @@
 * Stuffing
 * [Turkey](./dinner/turkey.md)
 * Brown gravy 
+* Cranberry Sauce
 * Mashed potatoes
 * [Corn pudding](./dinner/corn_pudding.md)
 * Green beans (Nanna)
